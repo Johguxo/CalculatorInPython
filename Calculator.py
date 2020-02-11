@@ -1,1 +1,0 @@
-#Gonzales Inca Johann Gustavo
